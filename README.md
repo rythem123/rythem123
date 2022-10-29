@@ -5,8 +5,9 @@
 
 - 🌱 I’m currently working on Distributed Systems.
 
-- 💬 Ask me about **Competitive Programming,Webdevelopment**
+- 💬 Ask me about **Competitive Programming,Webdevelopment, Machine Learning**
 
+- I see my self as a forever learner.
 - 📫 How to reach me **rythemsharma21@gmail.com**
 
 <h3 align="left">Connect with me:</h3>
