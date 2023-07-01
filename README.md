@@ -7,11 +7,11 @@
 
 - 🌱 I’m currently learning **Networking**
 
-- 💬 Ask me about **Competitive Programming,Webdevelopment, Machine Learning**
+- 💬 Ask me about **Competitive Programming,Web Development, Machine Learning**
 
 - 📫 How to reach me **rythemsharma21@gmail.com**
 
-- 📄 Know about my experiences [https://www.linkedin.com/in/rythem-sharma/overlay/1635504448941/single-media-viewer/](https://www.linkedin.com/in/rythem-sharma/overlay/1635504448941/single-media-viewer/)
+- 📄 Know about my experiences [https://www.linkedin.com/in/rythem-sharma/overlay/1635531675974/single-media-viewer/?profileId=ACoAADFyOkABWYT7h1hZ6HkOxTPee9deuc8C3B0](https://www.linkedin.com/in/rythem-sharma/overlay/1635531675974/single-media-viewer/?profileId=ACoAADFyOkABWYT7h1hZ6HkOxTPee9deuc8C3B0)
 
 - ⚡ Certitude **I see my self as a forever learner.**
 
